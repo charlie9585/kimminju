@@ -1,1 +1,1 @@
-# kimminju
+# kimminju.co.kr
